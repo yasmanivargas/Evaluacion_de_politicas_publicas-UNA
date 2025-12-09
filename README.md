@@ -1,1 +1,1 @@
-# Evaluacion_de_politicas_publicas-UNA
+Material empleado en el curso de Diseño y Evaluación de Políticas Públicas desarrollado en la maestría en economía, mención en planificación y gestión pública para la unidad de posgrado de la Facultad de Ingeniería Económica - Universidad Nacional del Altiplano (Nov. 2025) 
